@@ -1,0 +1,3 @@
+rohi
+vakura
+mirikali
